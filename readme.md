@@ -1,8 +1,7 @@
 Hello! this is a thing made by wadwdwd (discord) wadwdwd1 on github!
 
-
 for questions/support
-join 
+join his discord 
 https://discord.gg/jUmqKWnQKg
 
 
